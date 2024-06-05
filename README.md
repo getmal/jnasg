@@ -1,7 +1,7 @@
 # 含羞草实验室入口直接进首页app含羞草实验所入口主页
 山娃追问缘何不留在城里疗伤时父亲沉携
 
-👉/观/看/入/口👉http://www.baidu.com/link?url=aFQjCpKLyjmMkJDTPPmIM46mcs0b-moe8w2Xe6-iLGqpxJgfWTUHTnAr0yehHs6i&wd
+👉<a href="https://github.com/getmal/fdwwt/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a>
 
 含羞草实验室入口直接进首页app含羞草实验所入口主页	7、总有某段路，只能你一个人走;总有许多事，需要你一个人扛。
 我制造了这样一起蚂蚁王国的世界大战，到最后我无法收拾了，只好任由它们打去。我很懊悔，我原本是要做一件好事的嘛。后来，这样的好事我再也不愿意做了，因为我知道，凭我的能力，我做不成什么好事，我只会好心办坏事。
